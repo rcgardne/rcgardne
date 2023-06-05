@@ -13,8 +13,7 @@ Hi, I’m @rcgardne
 - Dungian Argumentation Framework
 - Video game ideas
 ## How to reach me ...
-- FaceBook: [Rayne Gardner](http://m.me/rayne.gardner.7?ref=github)
-- Twiiter: [@rcgardne](https://twitter.com/messages/compose?recipient_id=3287819606)
+- LinkedIn: [Message Me](https://www.linkedin.com/in/rayne-gardner-5917255b/)
  
 <!---
 rcgardne/rcgardne is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
